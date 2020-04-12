@@ -8,4 +8,4 @@ i shoot rum from a fire hose
 if you think that i am someone weird\
 first realize i am just a mirror\
 galapagose is every here\
-galapagose is what we're
+galapagose is where we're
