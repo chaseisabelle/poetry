@@ -1,4 +1,4 @@
-#mt kilamanjaro pissed off my mom
+# mt kilamanjaro pissed off my mom
 
 mt. kilimanjaro just sits there\
 like a big pile of dirt\

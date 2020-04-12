@@ -1,4 +1,4 @@
-#galapagose
+# galapagose
 
 i come from galapagose\
 i pick my bum, i pick my nose\

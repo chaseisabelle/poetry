@@ -1,4 +1,4 @@
-#stuck
+# stuck
 
 i just don't wanna go on\
 but there's no place else i can go\
